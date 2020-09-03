@@ -1,1 +1,1 @@
-**Hello! I'm Thath Rak (Not my real name, of course, it's a simple moniker or nickname of sorts). I'm a upstanding citizen interested in the information tech sector of business or learning, nothing too complicated I assume; though, I'm not much but a mere student, ready to learn the ropes of this work!**
+**Hello! I'm Thath Rak (Not my real name, of course, it's a simple moniker or nickname of sorts). I'm a upstanding citizen interested in computer sciences, nothing too complicated I assume; though, I'm not much but a mere student, ready to learn the ropes of this work!**
